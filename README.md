@@ -22,3 +22,5 @@ Two things to do on Christmas in Cuba.
 1. Act normal do normal things seeing as it doesn't Cubans celebrate Christmas at all. I even got some proof of this theory. Besides the buffet nothing changed in the lives of the Cubans. They worked as hard as the normally. There were not any partys. The pay for taxi drivers didn't rise. Nobody even took the day off, or so it seems.
 
 2. Do something slightly different than a regular day. Notice the slightly. So on Christmas instead of snorkeling or shell collecting or sight seeing we went fishing. Note: That I came to Cuba really just for the snorkeling and sight seeing, A friend showed us the shell collecting part. When you go fishing in a large bay you suspect to catch fish heavier then your adverage fish. We were suprised to only catch fish that were sized in the range 7-15cm. The fish were hiding under a dock and they were hard to hook. After going through a whole bag full of shrimp we had probably only caught 30 fish. And they were small fish not big fish. We thus ended up only taking one fish with us. The rest we just dumped back into the bay.
+
+3. I didn't even think of this option until we got back home.
