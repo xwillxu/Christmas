@@ -11,4 +11,4 @@ On Christmas I was in Cuba. The restaurant we normally ate in had a few changes 
 5. There where apples.
 
 Brief history fact about Cuba and apples;
-
+Apples are only eaten on two days of the year Christmas Eve and Christmas.
