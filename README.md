@@ -30,6 +30,7 @@ Here may be one thing that may or may not stun you: A busload of maybe 75 people
 
 ### Difference between what happened in Canada vs Cuba.
 These differences will be shocking but you may have already heard about them above. Notice: Only major difference will be shown.
-1. No Presents: In this shocking disclosure on Christmas there weren't any presents or balloon presents or even stuff to look like presents!
+1. No Presents: In this shocking disclosure on Christmas there weren't any presents or balloon presents or even stuff to look like presents! There are also no stocking or at least socks!
 2. Zero Decorations: Besides the buffet there are zero decorations during Christmas making it feel like it was not Christmas at all!
 3. Where Are The Christmas Trees: Naturally you would walk down a street in Canada or the US and see pine trees covered in lights. But in Cuba there was a single Christmas tree. Tiny and of course fake!
+4. The Tradition Is Amazingly Different: In this final disclosure we examine the difference in tradition. Just to take something off my head: Apples on Christmas (Cuba) vs Apples everyday of the year (Canada + US) 
