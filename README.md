@@ -24,3 +24,6 @@ Two things to do on Christmas in Cuba.
 2. Do something slightly different than a regular day. Notice the slightly. So on Christmas instead of snorkeling or shell collecting or sight seeing we went fishing. Note: That I came to Cuba really just for the snorkeling and sight seeing, A friend showed us the shell collecting part. When you go fishing in a large bay you suspect to catch fish heavier then your adverage fish. We were suprised to only catch fish that were sized in the range 7-15cm. The fish were hiding under a dock and they were hard to hook. After going through a whole bag full of shrimp we had probably only caught 30 fish. And they were small fish not big fish. We thus ended up only taking one fish with us. The rest we just dumped back into the bay.
 
 3. I didn't even think of this option until we got back home. This choice was what literally happened to my mom though by accident. I call this option drum roll please: Get a cold and stay home. My mom got a cold after we went fishing and got back to our hotel. So this is a bad option to go with but, could happen to you!
+
+#### What happened on Christmas in our hotel.
+The buffet I talked about is in our restort even though it is called Hotel Rancho Luna. In english it's a real resort not a hotel.
