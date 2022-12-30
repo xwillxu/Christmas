@@ -29,4 +29,4 @@ The buffet I talked about is in our restort even though it is called Hotel Ranch
 Here may be one thing that may or may not stun you: A busload of maybe 75 people arrived at our resort on Christmas! Now guess how many people arrived on Christmas Eve? Nada, Zero, Nothing, None! Not a single person came or left our resort that day! To think that if this was a game about how many people came to the resort it would be a shocking 75-0 Christmas.
 
 ### Difference between what happened in Canada vs Cuba.
-These differences will be shocking but you may have already heard about them above.
+These differences will be shocking but you may have already heard about them above. Notice: Only major difference will be shown.
