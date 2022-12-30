@@ -27,3 +27,4 @@ Two things to do on Christmas in Cuba.
 
 #### What happened on Christmas in our hotel.
 The buffet I talked about is in our restort even though it is called Hotel Rancho Luna. In english it's a real resort not a hotel.
+Here may be one thing that may or may not stun you:
