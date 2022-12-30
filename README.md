@@ -13,3 +13,5 @@ On Christmas I was in Cuba. The restaurant we normally ate in had a few changes 
 Brief history fact about Cuba and apples;
 Traditionally Cubans eat apples on one day of the year Christmas Eve.
 But at restaurant which is a buffet. Apples where also were served on Christmas.
+
+I don't know if this is a new change to the tradition or are they just breaking the rules to get rid of apples. LOL!
