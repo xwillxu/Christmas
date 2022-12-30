@@ -1,7 +1,6 @@
 # Christmas
-## 2022
-### Christmas in Cuba be like LOL.
-#### Christmas in a Cuban restaurant.
+## 2022: Christmas In Cuba Be Like! Category: LOL.
+### Christmas in a Cuban restaurant.
 On Christmas I was in Cuba. The restaurant we normally ate in had a few changes on Christmas and Christmas Eve.
 
 1. There were a large amount of balloons taped together in the entry foyer. 
@@ -17,7 +16,7 @@ But at restaurant which is a buffet. Apples where also were served on Christmas.
 I don't know if this is a new change to the tradition or are they just breaking the rules to get rid of apples. LOL!
 It could be that they would serve apples again on New Years Day and New Years Eve. But seeing as I left on boxing day I don't know!
 
-#### What to do on Christmas in Cuba.
+### What to do on Christmas in Cuba.
 Two things to do on Christmas in Cuba.
 1. Act normal do normal things seeing as it doesn't Cubans celebrate Christmas at all. I even got some proof of this theory. Besides the buffet nothing changed in the lives of the Cubans. They worked as hard as the normally. There were not any partys. The pay for taxi drivers didn't rise. Nobody even took the day off, or so it seems.
 
@@ -25,9 +24,9 @@ Two things to do on Christmas in Cuba.
 
 3. I didn't even think of this option until we got back home. This choice was what literally happened to my mom though by accident. I call this option drum roll please: Get a cold and stay home. My mom got a cold after we went fishing and got back to our hotel. So this is a bad option to go with but, could happen to you!
 
-#### What happened on Christmas in our hotel.
+### What happened on Christmas in our hotel.
 The buffet I talked about is in our restort even though it is called Hotel Rancho Luna. In english it's a real resort not a hotel.
 Here may be one thing that may or may not stun you: A busload of maybe 75 people arrived at our resort on Christmas! Now guess how many people arrived on Christmas Eve? Nada, Zero, Nothing, None! Not a single person came or left our resort that day! To think that if this was a game about how many people came to the resort it would be a shocking 75-0 Christmas.
 
-#### Difference between what happened in Canada vs Cuba.
+### Difference between what happened in Canada vs Cuba.
 These differences will be shocking but you may have already heard about them above.
