@@ -35,4 +35,4 @@ These differences will be shocking but you may have already heard about them abo
 3. Where Are The Christmas Trees: Naturally you would walk down a street in Canada or the US and see pine trees covered in lights. But in Cuba there was a single Christmas tree. Tiny and of course fake!
 4. The Tradition Is Amazingly Different: In this final disclosure we examine the difference in tradition. Just to take something off my head: Apples on Christmas (Cuba) vs Apples everyday of the year (Canada + US) 
 
-## 2022: This Ends This Christmas Stuff. Notice: Please check out New Years Eve Celebration on Github tommorow.
+## 2022: Thus Comes The End Of This Blog Post!
