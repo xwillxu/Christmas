@@ -30,3 +30,5 @@ Here may be one thing that may or may not stun you: A busload of maybe 75 people
 
 ### Difference between what happened in Canada vs Cuba.
 These differences will be shocking but you may have already heard about them above. Notice: Only major difference will be shown.
+1. No Presents: In this shocking disclosure on Christmas there weren't any presents or balloon presents or even stuff to look like presents!
+2. Zero Decorations: Besides the buffet there are zero decorations during Christmas making it feel like it was not Christmas at all!
